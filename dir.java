@@ -1,2 +1,2 @@
 what are import values
-dir dake
+values are important for leading life
